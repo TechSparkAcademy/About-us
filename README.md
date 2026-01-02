@@ -71,9 +71,11 @@ Learning together builds stronger skills 🚀
 ---
 
 ## 📬 Contact & Connect
-📍 Location: Arakkonam, Tamilnadu, India  
-📧 Email: techsparkacademy@example.com
+📍 Location: India  
+📞 Contact Number: +91 7708777890
+📧 Email: techsparkacademy@example.com  
 🌐 Website: Coming Soon  
+
 
 ---
 
